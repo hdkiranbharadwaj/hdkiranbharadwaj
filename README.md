@@ -2,7 +2,7 @@
 <h3 align="center">A passionate Software Enthusiast who's also an Engineer ;)</h3>
 
 
-- 🌱 I’m currently learning **Machine Learning, React, MongoDB, AWS**
+- 🌱 I’m currently learning **Machine Learning, Neural Networks, React, MongoDB, AWS**
 
 - 📝 I regularly write articles on --> [My Blog](https://hdkb.home.blog/)
 
