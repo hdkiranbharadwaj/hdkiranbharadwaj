@@ -8,7 +8,7 @@
 
 - 📫 How to reach me --> **hdkiranbharadwaj@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://hdkbhome.files.wordpress.com/2023/08/resume.pdf)
+- 📄 Know more about me and my deeds --> [Resume](https://hdkbhome.files.wordpress.com/2023/08/resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
