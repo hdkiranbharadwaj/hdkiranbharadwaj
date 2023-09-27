@@ -17,7 +17,7 @@
 
 - 💬 Text me on ---> [Whatsapp](https://wa.me/919164552388)
 
-- 📄 Know more about me and my deeds  [https://hdkbhome.files.wordpress.com/2023/08/resume.pdf](https://hdkbhome.files.wordpress.com/2023/08/resume.pdf)
+- 📄 Know more about me and my deeds  [Resume](https://hdkbhome.files.wordpress.com/2023/09/kiran-bharadwaj-h-d-resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
